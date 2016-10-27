@@ -1,0 +1,2 @@
+# diary
+first time using
